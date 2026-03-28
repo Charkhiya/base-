@@ -2,7 +2,7 @@ htword
 ghtyyjyjujujuujujhtht
 hytyu6u6 nnhthhthththghghhgh
 hyttyjyyyjujuujujngghhhthhthhtgghg
-yjyjyjujujujjujjuju bhthhthhtthhtght
+yjyjyjujujujjujjuju bhthhthhtthhtghthg
 ujujuhthhhhhgh
 jujujujuj ghgh ngngn ng nnht
 juj hghht
