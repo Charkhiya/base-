@@ -4,7 +4,7 @@ hytyu6u6 nnhthhthththghghhghtr
 hyttyjyyyjujuujujntrtgghhhthhthhtgghgrt
 yjyjyjujujujjujjuju bhthhthhtthhtghthgtrtt
 ujujuhthhhhhghgt
-jujujujuj ghgh ngngn ng nnhtrtettttet
+jujujujuj ghgh gggngngn ng nnhtrtettttet
 juj hghht
 ggggghgghhf gg hh ng
 tr
