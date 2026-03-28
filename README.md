@@ -4,6 +4,6 @@ hytyu6u6
 hyttyjyyyjujuujuj
 yjyjyjujujujjujjuju
 ujuju
-jujujujuj ghgh ng
+jujujujuj ghgh ngngn
 juj hgh
 ggggghgghhf gg hh ng
