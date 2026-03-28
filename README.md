@@ -3,6 +3,6 @@ ghtyyjyjujujuujuj
 hytyu6u6
 hyttyjyyyjujuujuj
 yjyjyjujujujjujjuju
-yuuyjujuj
+ujuju
 juju
 juj
